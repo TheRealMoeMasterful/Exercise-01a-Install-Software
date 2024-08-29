@@ -7,4 +7,4 @@ My github username is:
 
 TheRealMoeMasterful
 
-I have installed the software on my computer as a part of the exercise
+I have installed the software I promise
